@@ -1,2 +1,0 @@
-# Abbas
-personal website
